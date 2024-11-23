@@ -1,1 +1,1 @@
-El que hable mierda que la chu**
+El que hable mierda que la chupe
